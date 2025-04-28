@@ -1,3 +1,3 @@
 # BKLA-DEMO
 Doin this fo ma BABE 
-owned by - oompa loompa
+owned by - oompa loompa Jamba Lamba
